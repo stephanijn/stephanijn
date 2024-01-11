@@ -1,0 +1,7 @@
+DO YOU WANT YOUR EX BOYFRIEND, GIRLFRIEND, WIFE OR HUSBAND BACK? I HIGHLY RECOMMEND YOU TO CONTACT DR BOB:
+TEXT /WHATSAPP : +2347057225052
+EMAIL:foreverspellcast49@gmail.com
+
+Hello am STEPHANIE JANE from the united state, i read some testimony about Dr  Bob   on how he has helped people in bringing back there ex within 48hours i was just thinking if that was real, And decided to call a lady who made a testimony and also dropped her number, So i called her and ask her about Dr  Bob   she said Dr  Bob   is a trustworthy man and he his ready to bring back my lover for me, i was just so happy and a little bit relief that my lover will be back to me soon, Then i decided in contacting Dr  Bob   which i did, And before i could share him my problem he has already told me what i came for, And he said everything will be okay within 48hours that my lover will be back to my arms, So he said he would be casting the spell and that within 48hours my lover would call me, So i hoped so truly before the 48hours i got a call from a man who has left me for the past 1years saying he is sorry and he wants me back, i was happy and i said i also want him back, Then i traveled to Canada to meet him up,  And he apologized for what he has done to me now he proposed to marry me and we are both preparing for our wedding soon, All thanks to the great and World best spell caster.
+
+WhatsApp him directly :+2347057225052
